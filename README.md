@@ -1,3 +1,5 @@
+Hey there, I'm Amarah!
+
 🎓 I've completed my Masters from Vellore Institute of Technology, Vellore.
 
 🌱 I'm currently working as a Data Scientist in Sonata.
