@@ -8,6 +8,12 @@
 
 ✨ When I'm not solving problems, I spend time to keep myself healthy, travel, and explore the undiscovered.
 
+⭐️  High-Energy, Results-Driven and Focused.
+    Speed and accuracy is a vital part of my work.
+    Learning something new every day is what drives me.
+    Good ethics, strong writing skills and interpersonal skills- fit for both team and individual environment.
+
+
 📌 Scroll down to see my Pinned Repositories.
 
 <!---
