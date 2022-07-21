@@ -1,4 +1,4 @@
-Hey there, I'm Amarah!
+“Torture the data, and it will confess to anything.” - Ronald Coase 
 
 🎓 I've completed my Masters from Vellore Institute of Technology, Vellore.
 
